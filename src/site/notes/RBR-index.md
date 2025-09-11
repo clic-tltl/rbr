@@ -5,3 +5,4 @@
 # Revoltas Regenciais
 
 [[Revoltas/Balaiada\|Balaiada]]
+[[Revoltas/Cabanagem\|Cabanagem]]
