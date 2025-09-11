@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/"}
+{"dg-publish":true,"permalink":"/rbr-index/"}
 ---
 
 # Revoltas Regenciais
