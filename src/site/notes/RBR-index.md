@@ -3,3 +3,5 @@
 ---
 
 # Revoltas Regenciais
+
+[[Revoltas/Balaiada\|Balaiada]]
