@@ -10,7 +10,7 @@ Durante a Balaiada (1838–1841), Negro Cosme se tornou uma das lideranças mais
 
 Mesmo após a derrota da revolta, continuou resistindo até ser preso em 1841. Julgado como um dos principais chefes do movimento, foi condenado e enforcado em Itapecuru-Mirim em setembro de 1842, tornando-se um símbolo da luta negra no Brasil e servindo de exemplo do medo que o Império tinha da mobilização popular negra. Ele se autodenominava “Tutor e Imperador da Liberdade”, mostrando a força de sua liderança.
 
-Tag: Cosme Bento das Chagas x [[Desfechos/Morte\|Morte]]
+Tag: Cosme Bento das Chagas x [[Grupos/Negros livres\|Negros livres]] x [[Desfechos/Morte\|Morte]]
 
 Fonte: [https://www.historia.uff.br/impressoesrebeldes/pessoa/negro-cosme/](https://www.historia.uff.br/impressoesrebeldes/pessoa/negro-cosme/)
 

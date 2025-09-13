@@ -8,6 +8,6 @@ Luiza Mahin, africana livre e quituteira em Salvador, é considerada uma das mai
 
 Não há registros oficiais sobre o destino de Luiza Mahin após a revolta. A tradição oral afirma que ela foi perseguida pelas autoridades e possivelmente deportada para a África, mas as fontes históricas não confirmam com precisão. Sua memória, porém, ficou como símbolo de resistência, transmitida por seu filho, o poeta e abolicionista Luiz Gama.
 
-Tag: Luiza Mahin
+Tag: Luiza Mahin x [[Grupos/Negros Livres\|Negros Livres]]
 
 Fonte: [https://www.geledes.org.br/luiza-mahin/](https://www.geledes.org.br/luiza-mahin/)

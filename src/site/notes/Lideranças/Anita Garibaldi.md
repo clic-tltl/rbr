@@ -10,5 +10,5 @@ Na Farroupilha, Anita participou diretamente dos combates, empunhando armas, cui
 
 Depois da queda da República Juliana, Anita seguiu com Garibaldi para o Uruguai e, posteriormente, para a Itália, onde continuou lutando em guerras republicanas. Mas foi na Revolta Farroupilha que ela iniciou sua trajetória como combatente, sendo lembrada até hoje como a “Heroína dos Dois Mundos”, título que recebeu por lutar tanto na América quanto na Europa. Grávida de seu quinto filho, Anita morreu em agosto de 1849, aos 28 anos, durante a fuga das tropas francesas e austríacas em defesa da República Romana.
 
-Tag: Anita Garibaldi
+Tag: Anita Garibaldi x [[Grupos/Populares\|Populares]]
 Fonte: [https://www.historia.uff.br/impressoesrebeldes/pessoa/anita-garibaldi/](https://www.historia.uff.br/impressoesrebeldes/pessoa/anita-garibaldi/)

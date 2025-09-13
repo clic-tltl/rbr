@@ -8,6 +8,6 @@ Elesbão do Carmo, africano liberto e muçulmano, também foi identificado como 
 
 Elesbão do Carmo, outro articulador muçulmano da revolta, também foi preso após a derrota. As fontes relatam que sofreu condenação pesada, mas, assim como outros líderes, foi provavelmente deportado. Seu nome aparece em registros de processos judiciais da época como parte dos chefes religiosos punidos.
 
-Tag: Elesbão do Carmo x [[Desfechos/Deportação\|Deportação]]
+Tag: Elesbão do Carmo x [[Grupos/Negros livres\|Negros livres]] x [[Desfechos/Deportação\|Deportação]]
 
 Fonte: [https://oglobo.globo.com/brasil/historia/revolta-dos-males-revista-em-textos-de-escravos-de-jornais-da-epoca-15015704](https://oglobo.globo.com/brasil/historia/revolta-dos-males-revista-em-textos-de-escravos-de-jornais-da-epoca-15015704)

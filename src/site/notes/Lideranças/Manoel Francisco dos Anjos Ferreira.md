@@ -10,4 +10,4 @@ Conhecido como “Balaio”, Manoel Francisco dos Anjos Ferreira era um artesão
 
 Fonte: [https://www.appai.org.br/a-balaiada-mais-uma-revolta-camponesa-no-brasil/](https://www.appai.org.br/a-balaiada-mais-uma-revolta-camponesa-no-brasil/)
 
-Tag: Manoel Francisco dos Anjos Ferreira x [[Desfechos/Morte\|Morte]]
+Tag: Manoel Francisco dos Anjos Ferreira x [[Grupos/Populares\|Populares]] x [[Desfechos/Morte\|Morte]]
