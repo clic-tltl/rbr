@@ -25,5 +25,5 @@ Tag: [[Causa-Objetivos/Derrubada do Governo\|Derrubada do Governo]] x [[Causa-Ob
 
 **Desfecho**
 A Revolta Farroupilha terminou em 1º de março de 1845, com a assinatura do Tratado de Ponche Verde, após dez anos de conflito. O acordo foi resultado de negociações entre os líderes farroupilhas e o governo imperial, conduzidas pelo então Duque de Caxias. Pelo tratado, os rebeldes receberam anistia política, e muitos de seus oficiais foram incorporados ao Exército Imperial. Também foi garantida a liberdade aos escravizados que lutaram ao lado dos farrapos, mas os impostos sobre o charque — uma das principais causas da revolta — não sofreram grandes mudanças. Apesar de não conquistar a independência, a Revolta Farroupilha se consolidou como a mais longa e organizada rebelião do período regencial.
-Tag: [[Desfechos/Anistia\|Anistia]] x [[Desfechos/Liberdade dos escravizados\|Desfechos/Liberdade dos escravizados]]
+Tag: [[Desfechos/Anistia\|Anistia]] x [[Desfechos/Liberdade dos escravizados\|Liberdade dos escravizados]]
 Fonte:[https://www.fflch.usp.br/38089#:~:text=A%20principal%20lideran%C3%A7a%20da%20rebeli%C3%A3o](https://www.fflch.usp.br/38089)|
